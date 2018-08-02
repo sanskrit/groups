@@ -2,5 +2,7 @@
 
 title: Parts
 contents:
-  - title: Home
+  - title: Home - Intro
     url: /index.html
+  - title: History
+    url: /history.html
