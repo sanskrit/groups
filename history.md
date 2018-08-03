@@ -2,7 +2,6 @@
 title: "Matturu History मत्तूरुग्रामः - इतिहासः"
 tags: [getting_started]
 sidebar: home_sidebar
-permalink: index.html
 summary: History.
 ---
 
