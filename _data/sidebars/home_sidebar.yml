@@ -4,5 +4,9 @@ title: Parts
 contents:
   - title: Home - Intro
     url: /index.html
+  - title: Contribute
+    contents:
+      - title: Motivation
+        url: /contribute/index.html
   - title: History
     url: /history.html

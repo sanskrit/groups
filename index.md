@@ -34,7 +34,7 @@ Do learned vaidika-s from other regions invite your neighbors for conferences wh
 ### Hapiness and the arts
 ![Cows and the street](https://i.imgur.com/CWNQub8.jpg)
 
-Do you see kids happily play on the street even as they bear shikha-s and wearing dhoti-s? As you walk around your neighborhood, as you make your way around loitering desi cows, can you listen to the chriping of birds, the chanting of the veda-s, the Carnatic classical music, practice of the gamaka art form {[YT](https://youtu.be/anoPN1QMyhM?t=532)} and ritual challenge of the shrauta ritualist?
+Do you see kids happily play on the street even as they bear shikha-s and wearing dhoti-s? As you walk around your neighborhood, as you make your way around loitering desi cows, can you listen to the chriping of birds, the chanting of the veda-s, the Carnatic classical music, practice of the gamaka art form {[YT](https://youtu.be/anoPN1QMyhM?t=532)} and high pitched challenge of the shrauta ritualist?
 
 ## Pics, Videos and Media
 - Some albums - [GP1](https://photos.google.com/share/AF1QipNRXq7qvE4NPUKSv4faG1Z8bzPskFbTNSIi_ZgZCUpDk7LKZzysXx3Zf5zpqSFUEQ?key=azFVLWRYNzdmUG4yWUV3QU9RNWp0ZTFLbkh0YVBB)
