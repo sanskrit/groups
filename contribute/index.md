@@ -14,7 +14,7 @@ As we can see in the [intro page](../index.md), Mattūru is unique in this regar
 
 As an example, villagers from Mattūru and neighboring Hosahaḷḷi played a major role in (trans)forming [Mohit Bharadwaj, founder of Vaidika Bhārata](http://indiafacts.org/after-millenia-tradition-reborn-vaidika-bharata/), who has gone on to play a major role in reviving the near-extinct Śānkhāyana branch of the Ṛgveda and shrauta ritual tradition in the heartland of the ancient Bhārata-s in North India. Several outsiders have studied in Mattūru for extended periods of time; some have even come to settle there with their families (such as Pradīpa, a devout Āśvalāyana agnihotrin and Rājārām Mūrti, a former businessman)!
 
-### Influence from outsidea
+### Influence from outside
 The Mattūru agrahāra is not cut off from the rest of the world - they interact and contribute to the well-being of others, and are in turn buffeted by outside lures and pressures. Some youngsters from the village choose to leave to become engineers and doctors; some stay contentedly stay back to become the future embodiments of vedic ideals. Though the agrahāra is self sustaining, thanks to ancient land grants to the resident brāhmaṇa families, it does benefit from outside contributions for some of its scholarly and educational activities.
 
 We should ensure that this outside influence continues to be as positive as possible. Out of gratefulness and frank self interest in letting our children have access to a place like Mattūru, we should contribute to its sustenance and security.
