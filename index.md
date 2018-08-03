@@ -19,17 +19,16 @@ To illustrate how rare this village is, consider the following:
 ![iShTi](https://i.imgur.com/QPe1bWQ.jpg)
 ![sandhyopAsana](https://i.imgur.com/40vGkRb.jpg)
 
-When was the last time you saw the the sacred shrauta fires for which the veda-s were compiled in the form we see today? Can you think of another place on earth where you would find three practicing agnihotrin-s and many more former agnihotrin-s and somayAjin-s? If you wanted to do a vedic iṣṭi, would you easily find skilled Rtvik-s to fill the roles of hotṛ, adhvaryu, agnīdhra and udgātṛ in your surroundings? Do scores of devout brāhmaṇa-s in your surroundings stay awake in the middle of the night during a lunar eclipse to take a bath in a very cold pristine river and do their japa-s? 
+When was the last time you saw the the sacred shrauta fires for which the veda-s were compiled in the form we see today? Can you think of another place on earth where you would find three practicing agnihotrin-s and many more former agnihotrin-s and somayAjin-s? And even sannyāsin-s? If you wanted to do a vedic iṣṭi, would you easily find skilled Rtvik-s to fill the roles of hotṛ, adhvaryu, agnīdhra and udgātṛ in your surroundings? Do scores of devout brāhmaṇa-s in your surroundings stay awake in the middle of the night during a lunar eclipse to take a bath in a very cold pristine river and do their japa-s?
+ 
 ![Eclipse bath](https://i.imgur.com/n8XznpS.jpg)
 
 ### Impeccable command over the lore
 ![Conference](https://i.imgur.com/K7qUWXIg.png)
-
-Do learned vaidika-s from other regions invite your neighbors for conferences where tough shāstra questions are considered?
-
 ![Classes](https://i.imgur.com/0YEptId.jpg)
+![Explaining to outsiders](https://i.imgur.com/ZXLNs2b.jpg) 
 
-Do learned practicing brāhmaṇa-s in your neighborhood teach veda-s, shāstra-s and kāvya-s in Sanskrit? ![Explaining to outsiders](https://i.imgur.com/ZXLNs2b.jpg) Are they able to explain and present tough concepts clearly and concisely to the amazement of skeptical outsiders? 
+Do learned vaidika-s from other regions invite your neighbors for conferences where tough shāstra questions are considered? Do learned practicing brāhmaṇa-s in your neighborhood teach veda-s, shāstra-s and kāvya-s in Sanskrit? Are they able to explain and present tough concepts clearly and concisely to the amazement of skeptical outsiders? Have they compiled and published original books?
 
 ### Hapiness and the arts
 ![Cows and the street](https://i.imgur.com/CWNQub8.jpg)
