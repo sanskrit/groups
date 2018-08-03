@@ -29,7 +29,11 @@ When was the last time you saw the the sacred shrauta fires for which the veda-s
 ![Classes](https://i.imgur.com/0YEptId.jpg)
 ![Explaining to outsiders](https://i.imgur.com/ZXLNs2b.jpg) 
 
-Do learned vaidika-s from other regions invite your neighbors for conferences where tough shāstra questions are considered? Do learned practicing brāhmaṇa-s in your neighborhood teach veda-s, shāstra-s and kāvya-s in Sanskrit? Are they able to explain and present tough concepts clearly and concisely to the amazement of skeptical outsiders? Have they compiled and published original books?
+Do learned vaidika-s from other regions invite your neighbors for conferences where tough shāstra questions are considered? Do learned practicing brāhmaṇa-s in your neighborhood teach veda-s, shāstra-s and kāvya-s in Sanskrit? Are they able to explain and present tough concepts clearly and concisely to the amazement of savvy skeptical outsiders from the city? Have they compiled and published original books?
+
+![Manuscript](https://i.imgur.com/oY007Xg.jpg)
+![Books](https://i.imgur.com/w43ztkg.jpg)
+
 
 ### Hapiness and the arts
 ![Cows and the street](https://i.imgur.com/CWNQub8.jpg)
