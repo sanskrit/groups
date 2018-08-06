@@ -14,10 +14,10 @@ sidebar: home_sidebar
 ![Manuscript](https://i.imgur.com/oY007Xg.jpg)
 ![Books](https://i.imgur.com/w43ztkg.jpg)
 
-The talent of the village is capable serious research and editing work, as demonstrated by their production of meticulously researched and highly lauded books on Āpastamba śrauta rituals. This involved decypherment of multiple manuscripts acquired from distant places, learning unknown scripts, projecting hard to read manuscript images for clarity, consulting distant scholars for clarity. Circumstances permitting, their ambitions extend to several other similar works.
+The talent of the village is capable serious research and editing work, as demonstrated by their production of meticulously researched and highly lauded books on Āpastamba śrauta rituals. This involved decypherment of multiple manuscripts acquired from distant places, learning unknown scripts, projecting hard to read manuscript images and consulting distant scholars for clarity. Circumstances permitting, their ambitions extend to several other similar works.
 
 ## Problems
-- The smooth running of a gurukula is a tough task, requiring a resident master. Kids being kids will otherwise tend to run amok. The village masters, led by shrI Venkateśa Avadhāni, contribute as what time they have left over from attending to basic survival needs and household tasks. Unfortunately, this has not been enough, and the institution does not have enough funds to attract, hire and sustain a resident master (requiring around 30000 per month as of 2018).
+- The smooth running of a gurukula is a tough task, requiring a resident master. Kids being kids will otherwise tend to run amok. The village masters, led by shrI Venkateśa Avadhāni, contribute what time they have left over from attending to basic survival needs and household tasks. Unfortunately, this has not been enough, and the institution does not have enough funds to attract, hire and sustain a resident master (requiring around 30000 per month as of 2018).
   -  With whatever funds they have, the local management is currently (as of 2018 August) renovating the institute building. 
 
 - Research is a time consuming affair (as described earlier), which necessarily require the scholar to neglect his mundane work (such as tending to his family farm) and worries. Producing works of quality similar to the Āpastamba śrauta texts would require 15 to 20 lakhs as of 2018. Though various people (including heads of monastic institutions) have made promises (even in public!), nothing has materialized.
