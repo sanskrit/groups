@@ -2,15 +2,19 @@
 
 title: Parts
 contents:
-  - title: Home - Intro
-    url: /index.html
-  - title: Contribute
-    contents:
-      - title: Motivation
-        url: /contribute/index.html
-      - title: Matturu Veda Shālā मत्तूरु-ग्राम-वेद-पाठशाला
-        url: /contribute/veda-shaalaa.html
-  - title: History
-    url: /history.html
+    - title: Home - Intro
+      url: /index.html
+    - title: Matturu
+      contents:
+          - title: Home - Intro
+            url: /matturu/index.html
+          - title: Contribute
+            contents:
+              - title: Motivation
+                url: /matturu/contribute/index.html
+              - title: Matturu Veda Shālā मत्तूरु-ग्राम-वेद-पाठशाला
+                url: /matturu/contribute/veda-shaalaa.html
+          - title: History
+            url: /matturu/history.html
   - title: Blog
     url: /assets/blog/index.html
